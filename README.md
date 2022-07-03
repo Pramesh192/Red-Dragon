@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://i.ibb.co/CwffZ61/20220605-104552.jpg" alt="nz" width="350"/>
+<img src="https://i.ibb.co/XWf36K2/Picsart-22-06-21-15-57-57-786.jpg" alt="nz" width="350"/>
 </p>
 
 ## ☬𝙥𝙧𝙖𝙢𝙚𝙨𝙝 𝙡𝙞𝙤𝙣 𝙗𝙤𝙩࿐   Version 4.6 
