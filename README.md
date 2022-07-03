@@ -49,7 +49,7 @@ Version 4.6 (Deploy error fixed) 2022-06-20 latest
 
 
 <p align="center">
-<img src="https://i.ibb.co/6tCrPD6/image-downloader-1654443961039.gif" alt="nz" width="600"/>
+<img src="https://i.ibb.co/XWf36K2/Picsart-22-06-21-15-57-57-786.jpg.gif" alt="nz" width="600"/>
 </p>
 
 </details>
